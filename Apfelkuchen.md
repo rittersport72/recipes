@@ -2,7 +2,7 @@
 Mürbteig mit Apfelscheiben belegen.
 
 Kuchenguß:
-* 100g zerlassene Butter
+* 100g zerlassene Butter oder Margarine
 * 80g Zucker
 * 1 Vanillezucker
 * 100g gehobelte Mandeln

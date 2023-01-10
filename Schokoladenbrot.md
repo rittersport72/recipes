@@ -1,5 +1,5 @@
 # Schokoladenbrot
-* 250g Butter
+* 250g Butter oder Margarine
 * 250g Zucker
 * 6 Eigelb
 * 250g geriebene Schokolade (halbbitter)

@@ -5,7 +5,7 @@
 * etwas Zimt
 * 1 Liter Milch
 * 2 Eier
-* Butter
+* Butter oder Margarine
 
 Semmel in feine Scheiben schneiden. Äpfel in feine Scheiben schneiden und mit Zucker und Zimt bestreuen.  
 Semmelscheiben mit Apfelscheiben lagenweise in eine Glasform (feuerfest) einschichten.  

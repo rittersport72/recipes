@@ -15,4 +15,4 @@ Ergibt 5 mittelgr0ße Laibchen Hackbraten.
 
 ## Soße dazu
 1/2 Zwiebel klein hacken.
-Gebratenen Hackbraten aus der Pfanne nehmen, Zwiebel, Suppenkreuter und Tomatenmark in den Bratenfond geben, bräunen lassen. Zuerst mit wenig Wasser aufgießen, wenn das Wasser verkocht ist, mit kaltem Wasser ablöschen für die Soße. Soße sieben und würzen (Salz, Soße zum Braten konstant), Hackbraten dazugeben und ca. 20 Minuten köcheln lassen.
+Gebratenen Hackbraten aus der Pfanne nehmen, Zwiebel, Suppenkräuter und Tomatenmark in den Bratenfond geben, bräunen lassen. Zuerst mit wenig Wasser aufgießen, wenn das Wasser verkocht ist, mit kaltem Wasser ablöschen für die Soße. Soße sieben und würzen (Salz, Soße zum Braten konstant), Hackbraten dazugeben und ca. 20 Minuten köcheln lassen.
