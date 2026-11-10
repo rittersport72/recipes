@@ -1,5 +1,6 @@
 # Käsekuchen
-Mürbteig zubereiten und in Springform geben.
+Mürbteig zubereiten und in eine gefettete Springform geben.  
+Einen hohen Rand formen.
 
 ## Füllung
 * 50g Margarine
@@ -13,6 +14,7 @@ Mürbteig zubereiten und in Springform geben.
 
 Eier trennen in Eigelb und Eiweiß.  
 Margarine, Zucker und Eigelb rühren bis die Masse hell ist. Quark, Zitronenschale, Stärkemehl und Backpulver dazugeben und verrühren.  
-Die 4 Eiweiß steif schlagen. Einen Becher Sahne schlagen. Die geschlagenen Eiweiße langsam unterheben. Quarkmasse auf den Mürbteig geben.  
+Einen Becher Sahne schlagen und zur Quarkmasse langsam! verrühren.  
+Die 4 Eiweiß steif schlagen und zur Quarkmasse langsam unterheben! Quarkmasse auf den Mürbteig geben.  
 
 Backzeit: 1 Stunde bei 175°C ohne Umluft
